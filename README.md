@@ -5,7 +5,7 @@
 - 📫 Como entrar em contato comigo: me contate no instagram! @leo_rq18
 - 😄 Pronomes: Ele/Dele
 - ⚡ Curiosidade: Sou guitarrista
-- 💬 Me contate em: leopalmeirense90@gmail.com
+- 💬 Me contate em: leonardoroque12316@gmail.com
 
 
 <div style="display: inline_block"><br>
