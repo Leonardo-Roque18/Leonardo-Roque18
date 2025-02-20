@@ -3,7 +3,6 @@
 - 🔭 Atualmente estou procurando estágios e cursando o terceiro semestre de programação na FATEC
 - 🌱 Atualmente estou aprendendo PHP, Javascript, SQL
 - 📫 Como entrar em contato comigo: me contate no instagram! @leo_rq18
-- 😄 Pronomes: Ele/Dele
 - ⚡ Curiosidade: Sou guitarrista
 - 💬 Me contate em: leonardoroque12316@gmail.com
 
